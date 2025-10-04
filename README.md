@@ -1,1 +1,0 @@
-# Trading-by-By-Minhaz
